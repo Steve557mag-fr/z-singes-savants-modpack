@@ -1,2 +1,2 @@
-# z-singes-savants-modpack
+# singes-savants-modpack
 singes savants mais singe vroomvroom
